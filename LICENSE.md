@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with ultimate Bot for MEV arbitrage bot | pump-detection & new-token-detection, the #1 MEV arbitrage bot. Includes pump-detection and new-token-detection for
 
 
 
